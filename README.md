@@ -11,6 +11,8 @@ loser则是一直在缅怀过去，你是
 但是从现在起，你是可以改变的，你真的可以改变的。
 
 
-my name is guoshichao, and i love shendan,
+my name are 郭世超, and i love shendan,
 but while she is not love me anymore ...
 OK, she has nevered pay attention to me... 
+so, what, i still love her,
+I love her smile, so beautiful...
