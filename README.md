@@ -1,2 +1,6 @@
 # git_skills
 this series we will practice some advanced git skills
+
+my name is guoshichao, and i love shendan,
+but while she is not love me anymore ...
+OK, she has nevered pay attention to me... 
